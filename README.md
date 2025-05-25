@@ -1,0 +1,2 @@
+# nicocapital.xyz
+nicocapital.xyz
